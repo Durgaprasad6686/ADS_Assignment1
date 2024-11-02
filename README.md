@@ -1,0 +1,2 @@
+# ADS_Assignment1
+STASTICS AND TRENDS
